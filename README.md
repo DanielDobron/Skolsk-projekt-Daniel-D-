@@ -1,1 +1,1 @@
-# Skolsk-projekt-Daniel-D-
+# Skolský-projekt-Daniel-D-
